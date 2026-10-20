@@ -1,1 +1,1 @@
-# Caso-pr-ctico-Becario-de-Inteligencia-Competitiva
+# caso-inteligencia-competitiva-amis
